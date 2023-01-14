@@ -1,2 +1,2 @@
 # kad35
-https://noyon1.github.io/kad35/hp35.html
+https://noyon1.github.io/hp35/hp35.html
